@@ -1,7 +1,3 @@
----
-title: Heyo weary traveller 
----
-
 # The conundrum of life
 What is life? If not a finite period of suffering. 
 
