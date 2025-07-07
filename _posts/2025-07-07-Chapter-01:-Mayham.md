@@ -5,7 +5,7 @@ date: 2025-07-07
 
 Why thou art sad, when thou can be misreble. 
 
-Why thou art misreble, thou shan't care for sadness.
+When thou art misreble, thou shan't care for sadness.
 
 For thou to be misreble, thy heart must crack. 
 
